@@ -1,4 +1,0 @@
-EthanH
-======
-
-EthanH Blog
